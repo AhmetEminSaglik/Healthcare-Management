@@ -1,1 +1,0 @@
-Harpia Healthcare Management
